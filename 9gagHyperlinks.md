@@ -181,3 +181,13 @@ https://9gag.com/gag/aNAEQXb massa fel
 https://9gag.com/gag/a2rQreD goat simulator
 
 https://9gag.com/gag/aDWpEZx andreashumor
+
+https://9gag.com/gag/av72w4q skällande låt
+
+https://9gag.com/gag/aOBqK1D christian
+
+https://9gag.com/gag/aY4Wvgx tysklol
+
+https://9gag.com/gag/abzyLo9 finnlandslåt
+
+https://9gag.com/gag/aKDBDeg system of a down goat
