@@ -191,3 +191,37 @@ https://9gag.com/gag/aY4Wvgx tysklol
 https://9gag.com/gag/abzyLo9 finnlandslåt
 
 https://9gag.com/gag/aKDBDeg system of a down goat
+
+https://9gag.com/gag/agYqE46 cool fidget
+
+https://9gag.com/gag/a3M75E1 goat hater
+
+https://9gag.com/gag/abz6jxE snowboard-kråka
+
+https://9gag.com/gag/ajNqzn8 essa/erped
+
+https://9gag.com/gag/awQnAYr steffo australien
+
+https://9gag.com/gag/a05bmRB australien-subtitle
+
+https://9gag.com/gag/ax00xRb otrevlig utter
+
+https://9gag.com/gag/aP9jxrR 90-rave
+
+https://9gag.com/gag/aGejAWK vattensnarkning
+
+https://9gag.com/gag/aVM3Z18 Meowcal Jackson 
+
+https://9gag.com/gag/ad9LqQB low-tech cpu
+
+https://9gag.com/gag/azq9Apb closer dog
+
+https://9gag.com/gag/aOBYx0D sjungande get
+
+https://9gag.com/gag/ajN5Ez0 apple-anställningstips
+
+https://9gag.com/gag/aEB8QEG gurk-raggae
+
+https://9gag.com/gag/anjgovL spider developer
+
+https://9gag.com/gag/a9A1DzL erpedtåg
