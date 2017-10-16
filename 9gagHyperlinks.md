@@ -1,3 +1,21 @@
+https://9gag.com/gag/a4GWNnp livsråd
+
+https://9gag.com/gag/aNzOdYb breakingbad-remix
+
+https://9gag.com/gag/aOB1e9r bänkpressprutt
+
+https://9gag.com/gag/a88Kjx3 uttrar
+
+https://9gag.com/gag/a7D2obm anställning
+
+https://9gag.com/gag/aNz4Pmr fisken fixar maten
+
+https://9gag.com/gag/aDzbPZZ cool blomma
+
+https://9gag.com/gag/aEBWKbN alfabetsrapp-snabbt
+
+https://9gag.com/gag/awQOA08 (pull ups) senast först.
+
 http://9gag.com/gag/aKqzRpO
 
 http://9gag.com/gag/am9LqZj
@@ -225,3 +243,21 @@ https://9gag.com/gag/aEB8QEG gurk-raggae
 https://9gag.com/gag/anjgovL spider developer
 
 https://9gag.com/gag/a9A1DzL erpedtåg
+
+https://9gag.com/gag/a1KPwzY sod-pug
+
+https://9gag.com/gag/a24KA8e niiice dance
+
+https://9gag.com/gag/a6VqPmm thug life katt
+
+https://9gag.com/gag/aoOyNqn helikoptersäl
+
+https://9gag.com/gag/aq1yEPZ erped-tåg
+
+https://9gag.com/gag/aVMomNv Lukas
+
+https://9gag.com/gag/ajNLNwg programmering
+
+https://9gag.com/gag/a3MyM63 isle of man
+
+https://9gag.com/gag/ajNxgAq biljud (mapet)
