@@ -1,3 +1,23 @@
+https://9gag.com/gag/aR3PypG rhino-beetle
+
+https://9gag.com/gag/aDx31Gd halloumi-burgare
+
+https://9gag.com/gag/aGjVYZz win95
+
+https://9gag.com/gag/aQ3PVNe johan
+
+https://9gag.com/gag/ap2Kwzp julförfest
+
+https://9gag.com/gag/a5nmOOy marco
+
+https://9gag.com/gag/aP9K5zG inspiring
+
+https://9gag.com/gag/ayxKrxp baaly
+
+https://9gag.com/gag/anj31d5 moeks
+
+https://youtu.be/1ygdAiDxKfI finnish polka
+
 https://9gag.com/gag/a4GWNnp livsråd
 
 https://9gag.com/gag/aNzOdYb breakingbad-remix
