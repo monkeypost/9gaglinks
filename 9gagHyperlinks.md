@@ -1,3 +1,43 @@
+https://9gag.com/gag/aZLqxp3 lumpen-ljud
+
+https://9gag.com/gag/arg6yoX christian
+
+https://9gag.com/gag/a7M4bEx pribbe
+
+https://9gag.com/gag/azXNEZz johan ronnenlake
+
+https://9gag.com/gag/am7jrv2 olof
+
+https://9gag.com/gag/aDxErwG erik ERIK!
+
+https://9gag.com/gag/a7MQVdr skepp
+
+https://9gag.com/gag/aQ3WOKw christian
+
+https://9gag.com/gag/aKjMRB1 styrke-prutt
+
+https://9gag.com/gag/aN1b5rG squad
+
+https://9gag.com/gag/agXenvq snabbyoga
+
+https://9gag.com/gag/ax1wPNn gurra pappaledig
+
+https://9gag.com/gag/aW1pV2n katt-treat
+
+https://9gag.com/gag/a3KEMY7 great depression ww2
+
+https://9gag.com/gag/am7PLMd bug-tester
+
+https://9gag.com/gag/ayXBMQW oldschool-songs
+
+https://9gag.com/gag/avO7vYW dags att vakna
+
+https://9gag.com/gag/aYgKmmm japansksångkatt
+
+https://9gag.com/gag/aoN209x developer humor
+
+https://9gag.com/gag/argKWNy NOPE
+
 https://9gag.com/gag/aR3PypG rhino-beetle
 
 https://9gag.com/gag/aDx31Gd halloumi-burgare
